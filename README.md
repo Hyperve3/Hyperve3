@@ -12,7 +12,7 @@
                                               -ˋˏ✄┈┈┈┈-ˋˏ✄┈┈┈┈-ˋˏ✄┈┈┈┈-ˋˏ✄┈┈┈┈-ˋˏ✄┈┈
                                                𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠
 																							       
-                                         ◟♯ . / cupid . ! Or 🌊♡c̶i̶n̶n̶a̶m̶o̶n̶ 〰︎Ꮺ
+                         ◟♯ . / cupid . ! Or 🌊♡c̶i̶n̶n̶a̶m̶o̶n̶ 〰︎Ꮺ
 												
                                          ⊹ ࣪⊹ ࣪ ˖ᛝKazhua x scara shippers pls dni!⊹ ࣪ ⊹ ࣪ ˖🤍
 																				 
