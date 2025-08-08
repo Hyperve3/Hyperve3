@@ -14,11 +14,11 @@
 																							       
                          ◟♯ . / cupid . ! Or 🌊♡c̶i̶n̶n̶a̶m̶o̶n̶ 〰︎Ꮺ
 												
-                                         ⊹ ࣪⊹ ࣪ ˖ᛝKazhua x scara shippers pls dni!⊹ ࣪ ⊹ ࣪ ˖🤍
+                        ⊹ ࣪⊹ ࣪ ˖ᛝKazhua x scara shippers pls dni!⊹ ࣪ ⊹ ࣪ ˖🤍
 																				 
-					          ོ〰︎Ꮺc+h and interacting r ok unless I have dniuf in my name or iwec❄️∘˙˚
+					  ོ〰︎Ꮺc+h and interacting r ok unless I have dniuf in my name or iwec❄️∘˙˚
 							 
-                                  ⤷ 🌧I'm open to making new friends but might not int first♡ 
+                      ⤷ 🌧I'm open to making new friends but might not int first♡ 
 																	
                                                    〰︎Ꮺ 🪽social anxiety 
 
