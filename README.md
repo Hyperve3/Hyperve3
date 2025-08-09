@@ -25,7 +25,7 @@
 					              .     𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 ˚˙∘ོ♡ Kins
 						  Venti 〰︎ wanderer 〰︎ mayfufu〰︎ ena
 	                Thank u for reading my github <3 make sure to read the links for extended info♡
-								sign my ata if u can :[atabook](https://wandererkin.atabook.org)	      
+								sign my atabook if u can heh	      
 ![IMG_3251](https://github.com/user-attachments/assets/2127fa59-2686-49b0-bb49-cd32ab96162b)
 
 
